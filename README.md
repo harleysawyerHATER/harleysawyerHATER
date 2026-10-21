@@ -1,6 +1,6 @@
 
 <p align=center>
-<img src="https://github.com/harleysawyerHATER/harleysawyerHATER/blob/88c8ba3f8f00936435d84b7b0bc0881d5d8206bf/Screenshot%202026-10-21%20203834.png"=490>
+<img src="https://github.com/harleysawyerHATER/harleysawyerHATER/blob/88c8ba3f8f00936435d84b7b0bc0881d5d8206bf/Screenshot%202026-10-21%20203834.png"=790>
 </p>
 
 <p align="center">
