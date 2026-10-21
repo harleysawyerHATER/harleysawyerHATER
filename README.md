@@ -4,5 +4,5 @@
 </p>
 
 <p align="center">
-me <br> doctorㅤWILLㅤdieㅤinㅤchapterㅤ6ㅤ#PREACHㅤ🙏
+matchingㅤwithㅤourㅤ<a href="https://github.com/playerpptHATER">chud</a> <br> doctorㅤWILLㅤdieㅤinㅤchapterㅤ6ㅤ#PREACHㅤ🙏
 </p>
