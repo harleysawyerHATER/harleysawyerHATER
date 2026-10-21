@@ -1,6 +1,6 @@
 
 <p align=center>
-<img src="https://github.com/stuffedmeat/stuffedmeat/blob/3c0967954f5af9e7161d63a36edd65ef623f08d3/6k40bl-removebg-preview.png"=410>
+<img src="https://github.com/harleysawyerHATER/harleysawyerHATER/blob/88c8ba3f8f00936435d84b7b0bc0881d5d8206bf/Screenshot%202026-10-21%20203834.png"=490>
 </p>
 
 <p align="center">
